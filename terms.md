@@ -1,0 +1,71 @@
+#### 1 
+- Odyssey - 3
+- Eurcylea - 3
+- scar - 3
+- hide his identity / reveal - 3
+- externalized - 3
+- direct discourse - 3
+- feelings and thoughts are clearly defined - 3
+- moment of crisis - 4
+- leave nothing in obscurity - 4
+- entire style - 4
+- foreground / background - 4
+- Homeric style - everything is externalized - 5
+  - both for the people and for the reader - 5
+
+- similie of the wolf - 6
+- order of the Myrmidon host - 6
+- time / place perspective - 7
+- knows only a foreground, only a uniformly illuminated, uniformly objective present - 7
+- different world of forms - 7
+- sacrifice of Isaac - 8 
+  - unclear - 8
+- cause / symptom - 8
+- Here I am / Foerr book - 8
+- narrator - 8
+- God appears without bodily form - 9
+- overinterpretation 
+- Isaac - 10
+- Schiller - 11
+- direct discourse - 11
+  - same activity - shows different results - 11
+- lacunae - 11
+- time / place undefined - 11
+- 'his silent obedience is multilayered, has background' - 12
+- problematic psychological situation - 12
+- Saul and David - 12
+- multilayeredness of characters - 13
+
+- Homeric - delight in physical existence is everything to them and their high aim is to make that delight perceptible to us -  13
+- see the heroes in their ordinary life - 13 
+- Homeric poems conceal nothing, they contain no teaching and no secret second meaning - 13
+- legendary - 14
+- political liar - 14 
+- the use for which it was written - 14
+- Bibles claim to truth - 14 
+- obvious - 15 
+- when interpretation reached such proportions that the real vanished - 15
+- universal history - 16
+- 'The Old Testament, on the other hand, presents universal history: it begins with the beginning of time, with the creation of the world, and will end with the Last Days, the fulfilling of the Covenant, with which the world will come to an end' - 16
+- Paul and Church fathers - 16
+- have no development - 17
+- Jacob - 17
+- eventful life - 18
+- individuality - 18
+- development of this text - 18
+- reveal the transcendant majest of God - 18 
+- a rich existence, a rich development - 18 
+- 'It is a difficult matter, requiring careful historical and philogical training, to distinguish the true from the synthetic or the biased in a historical presentation; but it is easy to separate the historical from the legendary in general' - 19
+- 'data before us' - 19
+- Pliny - 19
+- Trajan - 19
+- National Socialism - 19
+- Abaslom's rebellion - 20
+- more limited and more static - 21
+- Laerte's family - 21
+  - Homer only shows ruling class - 21
+- 'As a social picture, this world is completely stable; wars take place only between different groups of the ruling class; nothing ever pushes up from below.' - 21
+- 'the social pictures gives a much less stable impression; class distinctions are not felt.' - 21
+- 'the origins of the prophecy seem to lie in the irrepressible politico-religious spontaneity of the people.' - 21
+- 'pathetic and sublime action of Odysseus' home coming' - 22
+- 'The sublime influence of God here reaches so deeply into the everyday that the two realms of the sublime and the everyday are not only actually unseparated but basically inseperable.' - 23 
